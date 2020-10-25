@@ -8,5 +8,5 @@
 - 📫 (twitter|linkedin|facebook|instagram)/fabiolimarocha
 - ⚽ São Paulo FC
 - 🏀 Golden State Warriors
-- 🎥 Guardians of the Galaxy (1|2) and Back to the Future (1|2|3)
+- 🎥 Guardians of the Galaxy, Back to the Future and Star Trek
 - 🙏 Believer
